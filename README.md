@@ -13,6 +13,9 @@
 
 其实这里我并不知道写啥，很多东西都想不起来，随便写点吧，啥啥都碰点啥啥都不精，还请大佬轻喷（
 
+----
+
+- 📫想联系我？: 你可以加我的QQ:3054951055 ~~*加进去骚扰他!*~~
 <!--
 **qixuanjun/qixuanjun** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
